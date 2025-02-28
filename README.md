@@ -19,6 +19,5 @@ If you're passionate about any of these, feel free to reach out!
 ## 📫 How to Reach Me  
 📩 **Email:** [semihkarakaya47@gmail.com]  
 💼 **LinkedIn:** [linkedin.com/in/semih-karakaya](#)  
-🐦 **Twitter/X:** [@semihkarakaya](#)  
 
 
